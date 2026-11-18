@@ -1,7 +1,5 @@
 # shokokettle
-<img src="https://i.pinimg.com/736x/c3/e6/51/c3e651d7ec40eea7945a8024a883ce58.jpg" alt="This may contain: three anime characters sitting on top of a wooden table with their faces covered by fake hair"/><img 
+<img src="https://i.pinimg.com/736x/58/75/7b/58757bca61ab150e15d1b53969f71a0f.jpg" alt="Dark sky Clouds Twitter header"/><img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/5a850898-f35d-4a5b-9ec4-a6e61f0e725e" />
 
 
 
-
-<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/5ebdbb7e-0522-4ad6-816e-181e1ec6ccb2" />
