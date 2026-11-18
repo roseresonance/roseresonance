@@ -1,5 +1,5 @@
 # shokokettle
-<img src="https://i.pinimg.com/736x/58/75/7b/58757bca61ab150e15d1b53969f71a0f.jpg" alt="Dark sky Clouds Twitter header"/><img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/5a850898-f35d-4a5b-9ec4-a6e61f0e725e" />
+<img src="https://i.pinimg.com/736x/58/75/7b/58757bca61ab150e15d1b53969f71a0f.jpg" alt="Dark sky Clouds Twitter header"/><img width="735" height="245" alt="image" src="https://github.com/user-
 
 
 
