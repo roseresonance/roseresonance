@@ -1,6 +1,5 @@
 # shokokettle
-<img src="https://i.pinimg.com/736x/52/3a/58/523a581d469fadae6b9da714be363452.jpg" alt="header - brown &gt; | Light brown banner discord, Brown banners aesthetic,  Aesthetic header brown"/>
-
+<img src="https://i.pinimg.com/736x/97/69/15/976915c4ee08ee3a84779f99dca9d466.jpg" alt="Story pin image"/><img width="735" height="440" alt="image" src="https://github.com/user-attachments/assets/e86e05c4-174a-40c7-b1d4-9ece6709a015" />
 
 
 
